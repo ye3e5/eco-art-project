@@ -20,7 +20,7 @@
 
 ### 2단계: 완성품
 ![완성품 1](final.png)
-![완성품 1](final.png)
+![완성품 1](dhkstjsdqhks.png)
 
 ## 💭 제작 후기
 ### 잘된 점
